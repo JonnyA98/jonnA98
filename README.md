@@ -3,7 +3,7 @@
 Hey there, I'm Jonny 👋
 I'm a software engineer currently based in London, UK 🇬🇧 
 
-Currently @ Vertical Future
+Currently @ Evolt Charging
 
 
 ABOUT ME
